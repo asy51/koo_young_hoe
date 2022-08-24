@@ -19,7 +19,8 @@ English | H | O | E
 
 which immediately betrays the reason for the "hoe" spelling. But the ㅚ dipthong makes the "hweh" sound instead of the "oh" sound that you think when you see the "oe" dipthong.
 
+![alt text](dipthong.png)
+
 Similarly, 최 or Choi is a common Korean surname that often gets mispronounced, as in "choice". But the correct pronunciation is similar to Younghoe Koo's "hweh", but with a "ch" sound to make "chweh". This is a mouthful syllable that even Koreans often neglect to enunciate perfectly. Nevertheless, it sounds nothing like the "hoe" sound you expect when you see Younghoe Koo's name.
 
-![alt text](dipthong.png)
 
